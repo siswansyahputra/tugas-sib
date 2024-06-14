@@ -21,3 +21,5 @@ semangattt berjuanggg uhuyyy
 Omagaaaaa ^0^
 
 maem siang yukk
+
+wkwk bisa dungg
