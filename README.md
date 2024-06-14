@@ -17,3 +17,5 @@ katakan cihuyy!!!
 tetap bernapas
 
 semangattt berjuanggg uhuyyy
+
+Omagaaaaa ^0^
