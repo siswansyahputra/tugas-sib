@@ -19,3 +19,5 @@ tetap bernapas
 semangattt berjuanggg uhuyyy
 
 Omagaaaaa ^0^
+
+ingfo qaqa
