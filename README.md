@@ -15,3 +15,5 @@ ini tess aja sie hehe
 katakan cihuyy!!!
 
 tetap bernapas
+
+semangattt berjuanggg uhuyyy
