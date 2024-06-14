@@ -1,4 +1,4 @@
-bisa weee# tugas-sib
+bisa weee
 
 
 Saya tambahkan baris baru
