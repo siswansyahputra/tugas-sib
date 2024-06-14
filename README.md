@@ -26,3 +26,4 @@ wkwk bisa dungg
 bisaa ga si
 hallo saya disini
 annyeong
+Haii
