@@ -2,12 +2,9 @@
 
 
 Saya tambahkan baris baru
-
-
 menambah baris baru lagi
-
-
 menambah baris selanjutnya
-
 halllo
-ini tess aja sie hehe
+saya cindy luckyta
+tetap bersyukur yaawwww,dalam hal apa pun itu
+babayyyyy-!!!!!
